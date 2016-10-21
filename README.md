@@ -1,4 +1,4 @@
-# [Ethan's Memories of Canadaland]
+# Ethan's Memories of Canadaland
 
 ## About
 
